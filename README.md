@@ -1,0 +1,2 @@
+# empas
+Jangan salah gunakan
